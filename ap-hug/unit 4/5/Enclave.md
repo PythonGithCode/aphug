@@ -1,0 +1,1 @@
+An area inside of a country that preserves the culture of peoples.

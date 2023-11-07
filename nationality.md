@@ -1,0 +1,2 @@
+A nationality is **identity with a group of people who share legal attachment and personal allegiance to a particular country**.
+[cite](https://schoolwires.henry.k12.ga.us/cms/lib08/GA01000549/Centricity/Domain/6204/Ethnicity%20Race%20and%20Nationality.ppt#:~:text=A%20nationality%20is%20identity%20with,allegiance%20to%20a%20particular%20country.)

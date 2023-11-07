@@ -1,0 +1,1 @@
+One person with absolute power

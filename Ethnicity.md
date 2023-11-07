@@ -1,0 +1,2 @@
+Ethnicity is **identity with a group of people who share the cultural traditions of a particular homeland or hearth**. It stands as our strongest bulwark for the preservation of local diversity.
+[cite](https://www.murrieta.k12.ca.us/cms/lib5/ca01000508/centricity/domain/1741/aphug%20class%20info/unit%203/ethnicity%20review%20questions.doc#:~:text=AP%20Human%20Geography%20Ethnicity%20Answers,the%20preservation%20of%20local%20diversity.)

@@ -1,0 +1,11 @@
+---
+aliases:
+  - Operational Boundary Disputes
+  - OBD
+  - Boundary Disputes
+---
+- differing neighboring states
+- two adjoining countries agree on how cross-border migration should be controlled.
+- quality of work is disputed
+- Differ over the function of the border
+- Nomadic farmers create problems due to crossing borders

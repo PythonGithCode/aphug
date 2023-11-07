@@ -1,0 +1,1 @@
+The actual practice of claiming territories and settling there to exert economic and social control.

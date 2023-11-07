@@ -1,0 +1,1 @@
+The need a economy, permanent people, land, defined boarders, and be recognized. 
