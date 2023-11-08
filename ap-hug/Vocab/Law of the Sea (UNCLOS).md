@@ -1,1 +1,0 @@
-established rights and responsibilities of states concerning ownership/use of oceans/seas and their resources as developed by the United Nations Convention on the Law of the Sea (includes 4 zones - Territorial Sea, Contiguous Zone, EEZ, High Seas)

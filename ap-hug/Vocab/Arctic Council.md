@@ -1,1 +1,0 @@
-alliance aimed at promoting cooperation, coordination and interaction among Arctic states, Arctic indigenous communities and other Arctic inhabitants on issues of sustainable development and Environmental protection in the Arctic members: U.S., Canada, Denmark, Finland, Iceland, Norway, Sweden, Russia

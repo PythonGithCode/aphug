@@ -1,1 +1,0 @@
-an area which governs itself, but is not an independent country, e.g. Greenland, The Azores, Hong Kong, Catalonia and Basque region (Spain)

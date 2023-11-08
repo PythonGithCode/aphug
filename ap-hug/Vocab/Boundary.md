@@ -1,1 +1,0 @@
-line that deines the limit of state jurisdiction that is a vertical plane that cuts through the subsoil and extends into the airspace above and often coincides with cultural, national or economic divisions

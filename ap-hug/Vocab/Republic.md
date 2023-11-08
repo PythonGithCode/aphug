@@ -1,1 +1,0 @@
-government where power resides in a body of citizens entitled to vote and is exercised by elected representatives responsible to them and governing according to law (U.S., Germany, France)

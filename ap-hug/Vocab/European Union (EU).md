@@ -1,1 +1,0 @@
-economic alliance between European countries (1992) that established free trade and open borders and a common currency (Eurozone)

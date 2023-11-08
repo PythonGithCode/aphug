@@ -1,1 +1,0 @@
-state that is governed as a single unit with a central top down form of governance where local territories only have power that is granted by the central government, e.g. U.K., France, Spain, China, Italy

@@ -1,1 +1,0 @@
-expressed geographically as control over people, land, and resources

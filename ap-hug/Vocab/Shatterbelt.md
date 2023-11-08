@@ -1,1 +1,0 @@
-region endangered by local conflicts within the state or between countries in the area, as well as the involvement of opposing great powers outside the region, e.g. Eastern Europe, Caucasus (Armenia, Azerbaijan, Georgia and Russia)

@@ -1,1 +1,0 @@
-political and/or economic alliance of three or more states that is formed for mutual benefit to promote shared goals and resolve disputes, but can limit the economic or political actions of member states creating a challenge to state sovereignty

@@ -1,1 +1,0 @@
-treaty between two or more states who agree on trade, tariffs, taxes, and often includes investment guarantees, e.g. NAFTA formed to eliminate tariffs on trade between Canada, Mexico, and the U.S.

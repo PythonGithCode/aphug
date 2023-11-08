@@ -1,1 +1,0 @@
-gov't with a strong central power, no constitutional accountability, no individual freedoms, e.g. absolute monarchy (Saudi Arabia), dictatorship (North Korea), fascism (Germany)

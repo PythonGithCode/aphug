@@ -1,1 +1,0 @@
-military alliance formed after WWII between the U.S., Canada and 26 European states to ensure mutual assistance in times of aggression

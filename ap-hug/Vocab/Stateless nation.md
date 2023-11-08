@@ -1,1 +1,0 @@
-a [[nation]] who do not have their own independent state, e.g. Palestinians, Basque, Kurds, Hmong

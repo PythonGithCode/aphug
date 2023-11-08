@@ -1,1 +1,0 @@
-final authority over a territory and the right to defend territorial integrity against incursion
