@@ -1,0 +1,1 @@
+the process by which a country denies its own statehood and forms its own allegiances and government

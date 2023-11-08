@@ -20,6 +20,6 @@ adjective: **centrifugal**
 
   
 
-Centrifugal forces can lead to failed states and uneven development.
+[[Centrifugal forces]] can lead to failed states and uneven development.
 
 

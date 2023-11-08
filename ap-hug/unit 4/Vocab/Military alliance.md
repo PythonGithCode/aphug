@@ -1,0 +1,1 @@
+alliance between two or more states who agree on mutual protection and support in case of a crisis, e.g. NATO formed to defend against threats by communist countries after WWII

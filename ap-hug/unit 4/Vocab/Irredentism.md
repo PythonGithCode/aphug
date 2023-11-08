@@ -1,0 +1,1 @@
+when a state wants to annex territory whose population is ethnically similar, e.g. Russia annexation of Crimea

@@ -1,0 +1,1 @@
+A buffer zone created by treaties/agreements between two or more military powers that falls on either side of the actual boundary

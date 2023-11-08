@@ -38,7 +38,7 @@ Centripetal forces can lead to ethnonationalism, more equitable infrastructure d
 	- Railroads in India
 
 5. Raison d'être/Shared history
-	- History of British imperialism; Creation of states (India, Pakistan, Bangladesh)
+	- History of British [[ap-hug/unit 4/Vocab/Imperialism|imperialism]]; Creation of states (India, Pakistan, Bangladesh)
 
 6. External threat
 	-  India, Pakistan

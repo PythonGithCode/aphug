@@ -1,0 +1,1 @@
+The process of moving from a non-democracy (authoritarian rule, colonial rule) to a democratic system

@@ -1,0 +1,1 @@
+state where there is a division in power between a central government and local territories/provinces/States/oblasts, e.g. Canada, U.S., Russia

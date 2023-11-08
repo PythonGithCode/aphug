@@ -1,0 +1,1 @@
+redistricting that is unfair and gives an advantage to a particular political party by concentrating voting strength
