@@ -1,0 +1,1 @@
+The connection of people, their culture, and their economic systems to the land creating a desire for ownership over a defined space

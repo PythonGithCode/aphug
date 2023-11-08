@@ -1,0 +1,1 @@
+a [[nation]] living across states, e.g. Koreans, Kurds, Basque, Russians

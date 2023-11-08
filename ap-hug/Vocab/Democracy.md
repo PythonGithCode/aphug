@@ -1,0 +1,1 @@
+government where power resides with the majority (Ancient Greece)

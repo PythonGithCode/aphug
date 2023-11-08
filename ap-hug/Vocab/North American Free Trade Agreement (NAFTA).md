@@ -1,0 +1,1 @@
+economic alliance to gradually eliminate tariffs and trade barriers between the U.S., Canada, Mexico

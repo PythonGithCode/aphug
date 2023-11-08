@@ -1,0 +1,1 @@
+boundary that evolves as the cultural landscape of an area takes shape and changes as cultural landscape changes, i.e. Northern Ireland and Ireland, i.e. Pakistan and India, i.e. Sudan and South Sudan

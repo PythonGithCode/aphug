@@ -1,0 +1,1 @@
+an area which can govern itself in certain areas, but does not have complete power to govern, e.g. Nunavut (Canada), Native American reservations (U.S.)

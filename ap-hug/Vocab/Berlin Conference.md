@@ -1,0 +1,1 @@
+a meeting (1884-1885) between European nations to divide Africa among them for colonization with the intent of preventing conflict over the process

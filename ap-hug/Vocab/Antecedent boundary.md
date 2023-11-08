@@ -1,0 +1,1 @@
+Boundary in the natural landscape that existed before the cultural landscape emerged and stayed in place as people moved in

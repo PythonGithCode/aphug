@@ -1,0 +1,1 @@
+Form of indirect control through the use of economic/political pressures to control or influence other countries, especially former colonies in which they continue to be exploited
