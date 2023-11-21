@@ -1,0 +1,1 @@
+rule by an autonomous power over a subordinate people and place that creates unequal cultural and economic relations
