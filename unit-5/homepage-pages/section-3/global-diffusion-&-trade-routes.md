@@ -1,0 +1,1 @@
+![[Agriculture diffused globally along trade routes]]
