@@ -1,0 +1,1 @@
+ the ability of the land to sustain a certain number of people

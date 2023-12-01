@@ -1,0 +1,4 @@
+- 1800’s: Forests were used for building products
+- didn’t have great transportation in the 1800s, so forests had to be close to the market.
+- 1800’s - used for building
+- lumber was very heavy
